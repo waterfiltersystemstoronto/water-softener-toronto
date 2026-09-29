@@ -1,7 +1,6 @@
 # Water Softener Toronto: A Local Guide for Homeowners
 
-If you live in **Toronto**, you may have noticed the signs of hard water around your home: white mineral spots on faucets, cloudy shower doors, scale buildup around fixtures, or soap that never seems to rinse away completely. For many Toronto homeowners, installing a **[water softener Toronto](https://oakswater.ca/locations/water-softener-system-toronto-ontario/)
-** system can be a practical way to address these everyday hard-water concerns and improve the quality of water used throughout the house.
+If you live in **Toronto**, you may have noticed the signs of hard water around your home: white mineral spots on faucets, cloudy shower doors, scale buildup around fixtures, or soap that never seems to rinse away completely. For many Toronto homeowners, installing a **[water softener Toronto](https://oakswater.ca/locations/water-softener-system-toronto-ontario/)** system can be a practical way to address these everyday hard-water concerns and improve the quality of water used throughout the house.
 
 ## Why Hard Water Matters in Toronto
 
